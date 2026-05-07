@@ -1,4 +1,4 @@
-
+Experience scary shawarma kiosk like never before with scary shawarma kiosk vip Scripts, the #1 Script. Includes invisibility and auto-sell for
 
 
 
